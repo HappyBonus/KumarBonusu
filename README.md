@@ -2,10 +2,6 @@
 
 <h2>🏆 Kumar Siteleri 2025</h2>
 
-<h1>🎰 NEEDSEO HİZMETLERİ A.Ş'den Kazandıran Liste!</h1>
-
-<h2>🏆 Deneme Bonusu Veren Siteler 2025</h2>
-
 <!-- 1. SATIR -->
 <table>
   <tr>
@@ -127,4 +123,3 @@
     <img src="https://resmim.net/cdn/2025/06/02/Tk6Hx8.jpg" width="500" alt="NEEDSEO" />
   </a>
 </p>
-
