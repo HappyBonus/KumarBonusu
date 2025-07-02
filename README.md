@@ -102,26 +102,17 @@
 <table>
   <tr>
     <th>Casibom</th>
-    <th></th>
-    <th></th>
   </tr>
   <tr>
     <td><a href="https://edu.norwichuniversty.com/tr?faff=4109" target="_blank"><img src="https://resmim.net/cdn/2025/07/02/TPU7v3.jpg" width="250" /></a></td>
-    <td></td>
-    <td></td>
   </tr>
   <tr>
     <td>2000TL HOŞ GELDİN BONUSU 🎁</td>
-    <td></td>
-    <td></td>
   </tr>
   <tr>
     <td><a href="https://edu.norwichuniversty.com/tr?faff=4109" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FF4500?style=for-the-badge&logoColor=white" /></a></td>
-    <td></td>
-    <td></td>
   </tr>
 </table>
-
 
 <!-- TELEGRAM VE İLETİŞİM -->
 <h2>📲 Bonus Telegram Kanalı</h2>
