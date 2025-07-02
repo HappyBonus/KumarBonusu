@@ -29,23 +29,23 @@
 <!-- 2. SATIR -->
 <table>
   <tr>
+    <th>Starzbet</th>
     <th>Ramadabet</th>
-    <th>Xslot</th>
     <th>Onwin</th>
   </tr>
   <tr>
+    <td><a href="https://cutt.ly/wrTIy45j" target="_blank"><img src="https://resmim.net/cdn/2025/07/02/TLaBlc.jpg" width="250" /></a></td>
     <td><a href="https://cutt.ly/ndseormd" target="_blank"><img src="https://resmim.net/cdn/2025/06/23/TOUHrc.jpg" width="250" /></a></td>
-    <td><a href="https://cutt.ly/crEuEsEx" target="_blank"><img src="https://resmim.net/cdn/2025/06/21/TxCkZC.jpg" width="250" /></a></td>
     <td><a href="https://cutt.ly/orbqkTFX" target="_blank"><img src="https://resmim.net/cdn/2025/06/01/Td5BpZ.jpg" width="250" /></a></td>
   </tr>
   <tr>
+    <td>750 TL DENEME BONUSU 🎁</td>
     <td>%100 SLOT BONUSU 🎁</td>
-    <td>1000₺ DENEME BONUSU <br> 1000 FREE SPİN 🎁</td>
     <td>750 TL DENEME BONUSU 🎁</td>
   </tr>
   <tr>
+    <td><a href="https://cutt.ly/wrTIy45j" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-00CED1?style=for-the-badge&logoColor=black" /></a></td>
     <td><a href="https://cutt.ly/ndseormd" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-ffffff?style=for-the-badge&logoColor=black" /></a></td>
-    <td><a href="https://cutt.ly/crEuEsEx" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-1E90FF?style=for-the-badge&logoColor=white" /></a></td>
     <td><a href="https://cutt.ly/orbqkTFX" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-800080?style=for-the-badge&logoColor=white" /></a></td>
   </tr>
 </table>
@@ -53,42 +53,46 @@
 <!-- 3. SATIR -->
 <table>
   <tr>
-    <th>Piabet</th>
     <th>Betturkey</th>
     <th>Pusulabet</th>
+    <th>Xslot</th>
   </tr>
   <tr>
-    <td><a href="https://piatrack1.com/ajhlajjz" target="_blank"><img src="https://resmim.net/cdn/2025/06/22/TOZgTG.jpg" width="250" /></a></td>
     <td><a href="https://cutt.ly/NrEughv5" target="_blank"><img src="https://resmim.net/cdn/2025/06/21/TxCEoF.jpg" width="250" /></a></td>
     <td><a href="https://cutt.ly/yrQsgejE" target="_blank"><img src="https://resmim.net/cdn/2025/06/12/TrcooW.jpg" width="250" /></a></td>
+    <td><a href="https://cutt.ly/crEuEsEx" target="_blank"><img src="https://resmim.net/cdn/2025/06/21/TxCkZC.jpg" width="250" /></a></td>
   </tr>
   <tr>
-    <td>%100 HOŞGELDİN BONUSU 🎁</td>
     <td>1000₺ DENEME BONUSU <br> 1000 FREE SPİN 🎁</td>
     <td>500 FREEBET & 500 FREESPIN 🎁</td>
+    <td>1000₺ DENEME BONUSU <br> 1000 FREE SPİN 🎁</td>
   </tr>
   <tr>
-    <td><a href="https://piatrack1.com/ajhlajjz" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-32CD32?style=for-the-badge&logoColor=white" /></a></td>
     <td><a href="https://cutt.ly/NrEughv5" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FF6600?style=for-the-badge&logoColor=white" /></a></td>
     <td><a href="https://cutt.ly/yrQsgejE" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FFC107?style=for-the-badge&logoColor=white" /></a></td>
+    <td><a href="https://cutt.ly/crEuEsEx" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-1E90FF?style=for-the-badge&logoColor=white" /></a></td>
   </tr>
 </table>
 
 <!-- 4. SATIR -->
 <table>
   <tr>
+    <th>Piabet</th>
     <th>Tipobet</th>
     <th>Bizbet</th>
   </tr>
   <tr>
+    <td><a href="https://piatrack1.com/ajhlajjz" target="_blank"><img src="https://resmim.net/cdn/2025/06/22/TOZgTG.jpg" width="250" /></a></td>
     <td><a href="https://cutt.ly/xrvbv2wY" target="_blank"><img src="https://resmim.net/cdn/2025/06/01/Td5w0c.jpg" width="250" /></a></td>
     <td><a href="https://refpa7480988.top/L?tag=d_4420769m_62079c_&site=4420769&ad=62079" target="_blank"><img src="https://resmim.net/cdn/2025/06/08/Tbkxd1.jpg" width="250" /></a></td>
   </tr>
   <tr>
+    <td>%100 HOŞGELDİN BONUSU 🎁</td>
     <td>750 TL DENEME BONUSU 🎁</td>
     <td>%100 HOŞGELDİN BONUSU <br> 3000 TL 🎁</td>
   </tr>
   <tr>
+    <td><a href="https://piatrack1.com/ajhlajjz" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-32CD32?style=for-the-badge&logoColor=white" /></a></td>
     <td><a href="https://cutt.ly/xrvbv2wY" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-00CED1?style=for-the-badge&logoColor=black" /></a></td>
     <td><a href="https://refpa7480988.top/L?tag=d_4420769m_62079c_&site=4420769&ad=62079" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FF6600?style=for-the-badge&logoColor=white" /></a></td>
   </tr>
