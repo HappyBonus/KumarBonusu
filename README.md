@@ -12,7 +12,7 @@
   <tr>
     <td><a href="https://cutt.ly/KrQnVYMx" target="_blank"><img src="https://resmim.net/cdn/2025/06/14/T1NfO3.jpg" width="250" /></a></td>
     <td><a href="https://cutt.ly/7rWja0JT" target="_blank"><img src="https://resmim.net/cdn/2025/06/17/TiXCEi.jpg" width="250" /></a></td>
-    <td><a href="https://tr.fgtrack.net/click?key=d1fcab420d4135b36915&uid=WNograez1VU6JuoTgaEh0UfmXmf1&domain=mistycasino.com&offer_id=1" target="_blank"><img src="https://resmim.net/cdn/2025/07/20/XT2lvH.jpg" width="250" /></a></td>
+    <td><a href="https://tr.fgtrack.net/click?key=d1fcab420d4135b36915&uid=WNograez1VU6JuoTgaEh0UfmXmf1&domain=mistycasino.com&offer_id=1" target="_blank"><img src="https://resmim.net/cdn/2025/07/20/XXNkuK.jpg" width="250" /></a></td>
   </tr>
   <tr>
     <td>2000TL HOŞ GELDİN BONUSU 🎁</td>
